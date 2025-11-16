@@ -124,7 +124,7 @@ We reserve the right to modify these terms at any time. Continued use of the Ser
 
 12. Governing Law
 
-These Terms shall be governed by the laws of [Your Country/State], without regard to its conflict of law provisions.
+These Terms shall be governed by the laws of Turkiye, without regard to its conflict of law provisions.
 
 13. Contact Information
 
