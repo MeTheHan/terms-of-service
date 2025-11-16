@@ -1,6 +1,6 @@
 Terms of Service for MTechno YouTube Subscription Check
 
-Last Updated: [16 November 2025]
+Last Updated: 16 November 2025
 
 1. Acceptance of Terms
 
@@ -130,7 +130,7 @@ These Terms shall be governed by the laws of Turkiye, without regard to its conf
 
 For questions about these Terms, contact:
 Email: metehanakin019@gmail.com
-YouTube: [youtube.com/@MTechnoW]
+YouTube: youtube.com/@MTechnoW
 
 14. YouTube Terms
 
